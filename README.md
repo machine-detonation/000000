@@ -1,4 +1,3 @@
-# ponytown-stuff
 ✧ As stated on my profile, interact with caution at all times. This is not exclusive to ponytown.
 
 -
