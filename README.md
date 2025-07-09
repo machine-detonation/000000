@@ -1,21 +1,25 @@
-✧ As stated on my profile, interact with caution at all times. This is not exclusive to ponytown.
-
--
-
-♢ Whispering is preferred.
-
--
-
-✧ Status Meanings - Away: Offtab | Busy: Semi-offtab | Online: Online (🤯), may or may not be offtab | Looking for chat/roleplay: self explanatory
-
--
-
-♢ Terms I use: C+H (Cuddle+Hide), Offtab, IWC/IWEC/IWVEC (Interact With Caution/Interact With Extreme Caution/Interact With Very Extreme Caution), DNIUF (Do Not Interact Unless Friends), W2I (Whisper to Interact)
-
--
-
-↓ spots I'm usually at !  (red: least often, yellow: often, purple: favorite/most often, white: only if im upset)
-
-![Screenshot_20250615-135409~4](https://github.com/user-attachments/assets/b87cb3e5-6cf3-4a50-bd45-086d5eeb2483)
+I don't really a specific area I like to hang out in, but I am usually found near docks, the center of the map, the anime area and dw area + the Roblox and crk areas once in a blue moon
 
 
+
+
+STATUS MEANINGS ::
+
+🟢 = Online, 50/50 chance I'll be Offtab
+
+🗨️/🎭 = Wanting to interact/roleplay with someone
+
+🌙 = Offtab/AFK
+
+🔴 = Busy (🤯)
+
+
+
+
+keep in mind that I go offtab often so whispering is preferred
+
+
+
+
+
+also can we not be freaks in the safe server you're in the same space as people who are under 15 take that shizz somewhere else okay thank you
