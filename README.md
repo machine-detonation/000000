@@ -1,4 +1,4 @@
-I don't really a specific area I like to hang out in, but I am usually found near docks, the center of the map, the anime area and dw area + the Roblox and crk areas once in a blue moon
+I don't really a specific area I like to hang out in, but I am usually found near docks or the center of the map
 
 
 
