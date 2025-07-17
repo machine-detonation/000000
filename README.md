@@ -11,7 +11,7 @@ STATUS MEANINGS ::
 
 🌙 = Offtab/AFK
 
-🔴 = Busy (🤯)
+🔴 = Busy (🤯) or Offtab/AFK
 
 
 
