@@ -26,4 +26,4 @@ keep in mind that I go offtab often so whispering is preferred
 
 
 
-also can we not be literal freaks in the safe server you're in the same space as people who are under 15 take that somewhere else dawg
+also can we not be literal freaks in the safe server you're in the same space as people who are under 15 take that somewhere else 🙏🙏🙏
