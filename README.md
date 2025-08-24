@@ -12,3 +12,9 @@ my strawpage is probably also gonna get deleted
 
 <p align="center">
 also don't go witch-hunting for my other socials/sites you weirdo
+
+<p align="center">
+uhm
+
+<p align="center">
+byebye
