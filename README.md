@@ -1,8 +1,5 @@
 <p align="center">
-I'm probably gonna delete this (my github) soon I just don't wanna be on here anymore there isn't an exact reason in particular
-
-<p align="center">
-yeah
+I'm likely gonna delete my github soon I just don't wanna be on here anymore there isn't an exact reason in particular
 
 <p align="center">
 I probably won't be back
