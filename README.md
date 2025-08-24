@@ -14,7 +14,10 @@ my strawpage is probably also gonna get deleted
 also don't go witch-hunting for my other socials/sites you weirdo
 
 <p align="center">
-uhm
+also also if you DO find my other socials don't bother me about this
 
 <p align="center">
-byebye
+there isn't some deep dark scary reason behind this again i just don't wanna be here anymore lol
+
+<p align="center">
+I'll go through with this in a few days (2-4 maybe)
